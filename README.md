@@ -2,3 +2,4 @@
 ![resume photo white](https://user-images.githubusercontent.com/95959029/189178117-6894baab-3aa4-4038-8452-37eecb54bb20.png)
 
 
+![DSC_7315 copy](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/1c240ac4-4cce-4e03-8c13-7022e358b5c7)
