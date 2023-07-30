@@ -2,3 +2,4 @@
 ![resume photo white](https://user-images.githubusercontent.com/95959029/189178117-6894baab-3aa4-4038-8452-37eecb54bb20.png)
 ![DSC_7315 copy](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/77778bab-5c75-4053-818d-820ecc1ee54c)
 ![Ashish_photo_recent](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/55a1c4c3-9632-4f5e-8984-7b17e8cd3f9e)
+![Ashish_photo_recent-modified](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/dbc84edc-df9f-4c2a-94bc-cffa60f512d0)
