@@ -21,3 +21,5 @@
 ![media_section](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/3824ae07-d3bd-4897-861c-7e73b66df919)
 ![Video_Chat_Laptop svg](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/1dc192a2-e878-49ba-92d6-2619d3db9039)
 ![chat-on-phone-screen-mobile-messenger-template-vector-28640284](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/e6fd4c15-76aa-49ff-ad9d-df8f9810fefd)
+![pngtree-whatsapp-icon-social-media-png-image_6618452](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/99cf996a-9d20-4203-af50-7a5e540b5474)
+![64774-computer-gmail-email-icons-png-image-high-quality](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/96158a0e-4124-4a95-89a7-92befe8bda30)
