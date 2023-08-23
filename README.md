@@ -19,3 +19,5 @@
 ![download](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/eef85c00-7c9d-47fc-aee9-7f5560969e7c)
 ![7204809](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/7b9f16db-194a-4360-8ffd-1e723cf32a81)
 ![media_section](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/3824ae07-d3bd-4897-861c-7e73b66df919)
+![Video_Chat_Laptop svg](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/1dc192a2-e878-49ba-92d6-2619d3db9039)
+![chat-on-phone-screen-mobile-messenger-template-vector-28640284](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/e6fd4c15-76aa-49ff-ad9d-df8f9810fefd)
