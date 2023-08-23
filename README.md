@@ -5,3 +5,8 @@
 ![Ashish_photo_recent-modified](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/dbc84edc-df9f-4c2a-94bc-cffa60f512d0)
 ![pngwing com](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/181c8766-e029-4fd0-98ae-fdc9aba42a59)
 ![0112-modified](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/38d1a1ea-a060-4bde-9997-50a32f27f3c5)
+![instagram-logo-icon-vector-27990407-modified](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/e1aec078-84c1-4f99-bc09-518464267a10)
+![509-5094426_facebook-twitter-instagram-pinterest-facebook-logo-in-circle](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/8130a9e1-d2d6-4916-b18b-fac9f34127c9)
+![LinkedIn_icon_circle svg](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/fc36d5f0-719f-4820-b128-86365529b09a)
+![png-clipart-icon-logo-twitter-logo-twitter-logo-blue-social-media-thumbnail-modified](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/36edb67e-55e5-4c4b-83c8-3245cf4abd52)
+![18-187274_https-www-youtube-circle-hd-png-download-modified](https://github.com/ashishdwivedi447/screentshotimages/assets/95959029/c14c07b4-ca5f-450f-9ec9-e2fff360be12)
